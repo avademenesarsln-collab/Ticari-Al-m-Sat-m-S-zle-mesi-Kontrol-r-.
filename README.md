@@ -1,0 +1,1 @@
+# Ticari-Al-m-Sat-m-S-zle-mesi-Kontrol-r-.
